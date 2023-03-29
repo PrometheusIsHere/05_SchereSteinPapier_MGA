@@ -1,0 +1,1 @@
+# 05_SchereSteinPapier_MGA
